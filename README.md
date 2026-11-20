@@ -1,2 +1,0 @@
-# Nexora-Association
-Nexora marketing
